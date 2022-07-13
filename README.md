@@ -1,1 +1,0 @@
-# tether-usdt.github.io
